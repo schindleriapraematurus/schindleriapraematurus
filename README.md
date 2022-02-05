@@ -6,13 +6,9 @@
 ---
 **└[ ∵ ]┘read before interacting└[ ∵ ]┘**
 ---
-◦•≫ lgbtq+ dni. mcyt fans dni. queen (band) fans dni 🤢🤢🤢
+◦•≫ lgbtq+ dni.
 
 ◦•≫ dni if you deny cryonics 
-
-◦•≫ ask before rping with me especially if im rping with someone else 
-
-◦•≫ i will hide you without second thought if you make me uncomfortable.
 
 ◦•≫ im usually not willing to have a conversation for very long especially if im hanging out with someone. everything personal. you should be offended by that
 
