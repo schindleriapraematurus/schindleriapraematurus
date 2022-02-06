@@ -14,6 +14,8 @@
 
 ◦•≫ i give out free insults feel free to walk up to me and ask or whisper me and specify that you want to be insulted
 
+◦•≫ no i am not pfp
+
 ---
 
 ![gif of a digital screen. a robot hand belonging to the one in the previous image grips and then unfolds.](https://i.pinimg.com/originals/3c/6c/25/3c6c25b1826273bc8d7fea59316f4d9b.gif)
