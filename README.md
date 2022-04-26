@@ -1,21 +1,23 @@
 
-> *world's most hated robot* └[∵┌] [┐∵]┘ *(there are several bounties on my head) (the russian government is after me)*
+> *king gizzard and the lizard wizard infest the rats nest supremacist* └[∵┌] [┐∵]┘
 
-![a gif of a digital screen with a silver robot walking](https://i.pinimg.com/originals/ba/63/54/ba635454a9ff6618df58bca03c958548.gif)
+![stu mackenzie from king gizzard puts his mouth on a microphone and yells into it](https://64.media.tumblr.com/37c24c9f0c53e1ed7163ac9a4783dd8a/7932b11257236722-3f/s400x600/181cfd5d2f41999cc3f86bb8debf7fdf5343ded8.gif)
   
 ---
-**└[ ∵ ]┘read before interacting└[ ∵ ]┘**
+**└[ ∵ ]┘ read this └[ ∵ ]┘**
 ---
-◦•≫ lgbtq+ dni.
+•≫ talk to me about king gizzard PLEASE PLEASE PLEASE PLEASE PLEASE PLEASE PLEASE PLEASE PLEASE
 
-◦•≫ dni if you deny cryonics 
+•≫ i often make a lot of jokes that could be triggering to some. please simply just hide me, thanks
 
-◦•≫ im usually not willing to have a conversation for very long especially if im hanging out with someone. everything personal. you should be offended by that
+•≫ i give out free insults feel free to walk up to me and ask or whisper me and specify that you want to be insulted
 
-◦•≫ i give out free insults feel free to walk up to me and ask or whisper me and specify that you want to be insulted
+*[toyhouse (my ocs)](https://toyhou.se/chariotsofsilk)*
 
-◦•≫ no i am not pfp
+*[last fm (music taste)](https://www.last.fm/user/taycoola)*
 
 ---
 
-![gif of a digital screen. a robot hand belonging to the one in the previous image grips and then unfolds.](https://i.pinimg.com/originals/3c/6c/25/3c6c25b1826273bc8d7fea59316f4d9b.gif)
+![clip from king gizzard's intrasport video, ambrose kenny smith is dancing while other members of the band stand still](https://64.media.tumblr.com/5e921be732616e041d6458a28d4dca05/9f73b18045409586-dd/s400x600/ac930810aa6292df5388f9bc6cac070be8184511.gif)
+
+> *NONAGON INFINITY OPENS THE DOOR NONAGON INFINITY OPENS THE DOOR* └[∵┌] [┐∵]┘
