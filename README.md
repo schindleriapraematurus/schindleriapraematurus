@@ -1,7 +1,7 @@
 
 > *king gizzard and the lizard wizard infest the rats nest supremacist* └[∵┌] [┐∵]┘
 
-![stu mackenzie from king gizzard puts his mouth on a microphone and yells into it](https://64.media.tumblr.com/37c24c9f0c53e1ed7163ac9a4783dd8a/7932b11257236722-3f/s400x600/181cfd5d2f41999cc3f86bb8debf7fdf5343ded8.gif)
+![gif with ambrose kenny smith of the murlocs playing harmonica in the background. big text on the screen reads "THE MURLOCS"](https://64.media.tumblr.com/601f917806a871431d81f9dd0d0f80bf/34651ac6c38fb04a-f3/s250x400/4474651751500574f8449eb77cc09d3cc8751a79.gif)
   
 ---
 **└[ ∵ ]┘ read this └[ ∵ ]┘**
@@ -18,6 +18,6 @@
 
 ---
 
-![clip from king gizzard's intrasport video, ambrose kenny smith is dancing while other members of the band stand still](https://64.media.tumblr.com/5e921be732616e041d6458a28d4dca05/9f73b18045409586-dd/s400x600/ac930810aa6292df5388f9bc6cac070be8184511.gif)
+![continuation from the last gif on this page. ambrose kenny smith playing harmonica while text in the bottom left corner reads "What If?"](https://64.media.tumblr.com/11ef19163693ed5aecb3f801c646b09d/34651ac6c38fb04a-ba/s250x400/20015fbaf33eacad8994dc9aee00f5835d4c4147.gif)
 
 > *NONAGON INFINITY OPENS THE DOOR NONAGON INFINITY OPENS THE DOOR* └[∵┌] [┐∵]┘
