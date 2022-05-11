@@ -16,6 +16,8 @@
 
 *[last fm (music taste)](https://www.last.fm/user/taycoola)*
 
+*[commission (info on toyhouse)](https://toyhou.se/15878547.wiggle-gif-comms-trades)*
+
 ---
 
 ![continuation from the last gif on this page. ambrose kenny smith playing harmonica while text in the bottom left corner reads "What If?"](https://64.media.tumblr.com/11ef19163693ed5aecb3f801c646b09d/34651ac6c38fb04a-ba/s250x400/20015fbaf33eacad8994dc9aee00f5835d4c4147.gif)
