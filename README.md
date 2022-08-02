@@ -16,6 +16,8 @@
 
 *[last fm (music taste)](https://www.last.fm/user/taycoola)*
 
+*[sign my guest book!](https://schindleriapraematur.123guestbook.com/)*
+
 ---
 
 ![continuation from the last gif on this page. chris squire jumps on stage while holding his bass.](https://64.media.tumblr.com/9ed2f9ab449e8353a2dd2d9f647d2687/7728cb28b9740a01-a4/s640x960/d45fa7709a669fc79f1743d684d0f6ca96efecf5.gifv)
