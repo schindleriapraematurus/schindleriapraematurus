@@ -1,3 +1,5 @@
+**if youre here because i got accused of being a pedo or transphobe or something, that wasn't me. there were 2 ppl sitting on top of me on a bench that people were yelling at and i had them both hidden. fuck pedophiles/maps/whatever name yall going by and trans rights**
+
 
 > *avg ponytown prog rock liker*
 
